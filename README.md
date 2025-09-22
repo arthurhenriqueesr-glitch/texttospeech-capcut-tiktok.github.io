@@ -1,1 +1,1 @@
-# im not the owner of the site
+# pls note that the html thing and the script wasnt made by me
